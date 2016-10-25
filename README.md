@@ -1,3 +1,3 @@
 # hello-world
 Just another repository
-I am 20 years old. I love music and psychology. I love anything that uses my brain and causes me to study and work hard.I love a good challenge. 
+I am 20 years old. I Play several different instruments and I love to learn new things. "The will to win, the desire to succeed, the urge to reach your full potiential... these are the keys that will unlock the door to personal excellence." -Confucious 
